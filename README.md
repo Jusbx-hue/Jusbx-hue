@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Jusbx-hue
 - 👀 I’m interested in athletics
 - 🌱 I’m currently learning html and python
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaborate on Amazon 
 - 📫 How to reach me 0504897663
 - 😄 Pronouns: he
 - ⚡ Fun fact: ...
